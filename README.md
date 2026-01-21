@@ -1,1 +1,1 @@
-Planning to modify the features and add more features and more 
+Planning to modify the features and add more features and more  
